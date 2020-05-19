@@ -1,5 +1,10 @@
 ## How to make good yogurt
 
+#### Materials
+1. One gal milk.
+2. Yogurt with live culture.
+
+#### Steps
 1. Heat your milk to near boiling point.
 2. Let it cool off to warm.
 3. Heat the oven to 115F. (Absolutely not exceeding 130F)
