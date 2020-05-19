@@ -3,7 +3,7 @@
 1. Heat your milk to near boiling point.
 2. Let it cool off to warm.
 3. Heat the oven to 115F. (Absolutely not exceeding 130F)
-4. Mix milk with little bit of existing yogurt culture, put in the oven for at least 8 hours.
+4. Mix milk with little bit of existing yogurt culture, put in the oven for at least 8 hours, leave it overnight if you hate the wait.
 5. Put yogurt in the fridge.
 6. Enjoy!
 
